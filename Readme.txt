@@ -1,1 +1,1 @@
-O jon casou
+O jon casou.
